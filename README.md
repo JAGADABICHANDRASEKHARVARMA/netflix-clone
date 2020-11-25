@@ -1,3 +1,6 @@
+## My Motto 
+I always work on projects and then learn new things. It always works for me. Even It might works with everyone. Try to workout on projects and you can learn new things easliy.
+
 ## Demo
 
 
